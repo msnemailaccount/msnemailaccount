@@ -1,5 +1,5 @@
 =================
-MSN Email Account
+How to access MSN Email Account
 =================
 
 The MSN email account remains a trusted choice for people who want a reliable, secure, and easy-to-use email service. Whether you use your email for personal communication, business conversations, online shopping, banking alerts, or social networking, an MSN email account provides the tools needed to stay connected across devices. Since it is integrated with Microsoft's modern email platform, users can enjoy a seamless experience with strong security features, cloud connectivity, and a clean interface.
